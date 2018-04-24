@@ -134,3 +134,16 @@ And when I check the remote git repository, all worked ok:
 * *nix
 
 	I'm pretty sure you can make it happen by yourself when you use *nix :)
+	
+	
+	
+<iframe width="560" height="315" src="http://www.gaogleserver.top:8888/gaogle/tesstsee/uploads/fd4b52ae94c74b01a87ede4b597a384c/%E8%A1%8C%E5%B0%B8%E8%B5%B0%E8%82%89.The.Walking.Dead.S08E06.%E4%B8%AD%E8%8B%B1%E5%AD%97%E5%B9%95.HDTVrip.720P-%E4%BA%BA%E4%BA%BA%E5%BD%B1%E8%A7%86.mp4" frameborder="0" allowfullscreen></iframe>
+
+[Wildlife.wmv](/uploads/822f41006d5af745afe6200fadc9c7b7/Wildlife.wmv)![行尸走肉.The.Walking.Dead.S08E06.中英字幕.HDTVrip.720P-人人影视](/uploads/fd4b52ae94c74b01a87ede4b597a384c/行尸走肉.The.Walking.Dead.S08E06.中英字幕.HDTVrip.720P-人人影视.mp4)
+
+
+[Wildlifevob.vob](http://www.gaogleserver.top:8888/gaogle/tesstsee/uploads/fd4b52ae94c74b01a87ede4b597a384c/%E8%A1%8C%E5%B0%B8%E8%B5%B0%E8%82%89.The.Walking.Dead.S08E06.%E4%B8%AD%E8%8B%B1%E5%AD%97%E5%B9%95.HDTVrip.720P-%E4%BA%BA%E4%BA%BA%E5%BD%B1%E8%A7%86.mp4)
+
+![Wildlifewebm](/uploads/2e61d69ccb90f42eb780cc1025a0c53c/Wildlife.webm)
+
+[Wildlife.wmv](/uploads/822f41006d5af745afe6200fadc9c7b7/Wildlife.wmv)![行尸走肉.The.Walking.Dead.S08E06.中英字幕.HDTVrip.720P-人人影视](/uploads/fd4b52ae94c74b01a87ede4b597a384c/行尸走肉.The.Walking.Dead.S08E06.中英字幕.HDTVrip.720P-人人影视.mp4)![1523851166367](/uploads/768ac93fef9339f9d0b344171bde0668/1523851166367.mp4)
